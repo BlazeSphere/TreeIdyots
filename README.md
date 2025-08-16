@@ -1,5 +1,4 @@
 # TreeIdyots
 OOP2
-Sana gumana na ito
-
-Maam ang hiraappp iconnect :< huhua
+ITP108-A
+SysInteg
