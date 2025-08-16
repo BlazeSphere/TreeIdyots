@@ -2,5 +2,4 @@
 OOP2
 Sana gumana na ito
 
-
-gay arth lmao skiull issue
+Maam ang hiraappp iconnect :<
